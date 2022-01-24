@@ -1,3 +1,3 @@
-# EatSenpai
+# EatXinping
 
-撅先辈罢
+吃掉新平
